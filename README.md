@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## <a href="https://github.com/lakshmi-2543" taget="blank">Lakshmi Rakkaiah</a> here 👋
+## <a href="https://github.com/lakshmi-2543" taget="blank">Lakshmi Rakkaiah</a> here 😇
 
 ### <p>Follow me on <a href="https://www.linkedin.com/in/lakshmi-rakkaiah-b4373123a/" target="_blank">![alt text](https://img.shields.io/badge/-LinkedIn-0e76a8?style=plastic&logo=linkedIn)</a></p>
   
