@@ -8,7 +8,6 @@
   
 ### Take a Glance at my <a href="https://aesthetic-lokum-a5d08d.netlify.app/" target="blank">Portfolio</a>
 
-reach me **usraising@gmail.com**
 
 
 
